@@ -1,4 +1,3 @@
-(https://media.licdn.com/dms/image/D4D16AQG6T92gjjtBKg/profile-displaybackgroundimage-shrink_350_1400/0/1674153278110?e=1687996800&v=beta&t=kBalXjs0xtl4yiKhyCmS6hE8z-40PKWhlzPkqqIzks)
 
 
 
